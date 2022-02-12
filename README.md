@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ravitejanference
+- 👀 I’m interested in writig codes
+- 📫 you can reach me at grt10@iitbbs.ac.in
